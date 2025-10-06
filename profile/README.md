@@ -8,7 +8,7 @@ pls no judge, braincells on vacation 🧠🏖️</br>
 - 🥹 HTML? OH YEAH, TOTALLY A PROGRAMMING LANGUAGE 🥹 (no argue plz)</br>
 
 # 👥 OUR HOOMANZ 👥
-- 😝 hoedenmaker - DA BIG BOSS OF ALL TEH THINGS, YO 🤙</br>
+- 😝 haloactief - DA BIG BOSS OF ALL TEH THINGS, YO 🤙</br>
 - 🐔 FyxOne - RANDOM DUDE FROM DA STREET 👀 (maybe wizard?)</br>
 - 😻 zortinon - TOTAL GOOFBALL, BUT LIKE, EPIC ONE 😭✨</br>
 - 😯 DedAkim - DA BEST VIBEGOOBER 💅😊</br>
