@@ -1,4 +1,4 @@
-# WELCOEM 2 OUR SILLY COMPANEY GOOFY GOOBER CORPORATION™ 💼
+# WELCOEM 2 OUR SILLY COMPANEY GOOFY GOOBER INCORPORATED™ 💼
 We do code. We all stoopid. But like... in a genius way 😎💥</br>
 pls no judge, braincells on vacation 🧠🏖️</br>
 
